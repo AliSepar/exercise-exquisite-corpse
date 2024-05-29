@@ -8,3 +8,6 @@ I failed the first quarter of a class in middle school, so I made a fake report 
 Since then I never ever lied to my mother again,watching her fight for me  
 even if it was all a big lie made me understand her Love for me.  
 But with other people in general I try always to lie to reach my goals.
+
+
+He asked his mother about her greying hair. Her mother thought it could be an opportunity to teach her child a lesson. So, she said that every bad action of his turns one of her hairs grey. He innocently replies that now he knows why his grandmother has only grey hairs on her head.
