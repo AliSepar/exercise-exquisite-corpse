@@ -8,3 +8,11 @@ I failed the first quarter of a class in middle school, so I made a fake report 
 Since then I never ever lied to my mother again,watching her fight for me  
 even if it was all a big lie made me understand her Love for me.  
 But with other people in general I try always to lie to reach my goals.
+
+This habit of *lying* to others has become second nature to me, a tool I use without guilt. Each success built on a lie only reinforced my belief that honesty was unnecessary.
+
+---
+
+Yet, deep down, the guilt of deceiving ***my mother, my own flesh***, remains a heavy **burden**.
+
+---
