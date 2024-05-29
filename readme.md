@@ -8,3 +8,5 @@ I failed the first quarter of a class in middle school, so I made a fake report 
 Since then I never ever lied to my mother again,watching her fight for me  
 even if it was all a big lie made me understand her Love for me.  
 But with other people in general I try always to lie to reach my goals.
+
+This experience profoundly impacted my relationship with my mother, teaching me the depth of her love and dedication. Despite this, the incident didn't completely deter my tendency to lie; instead, it reinforced my cunning nature. To this day, I navigate my interactions with others strategically, often bending the truth to achieve my objectives.
